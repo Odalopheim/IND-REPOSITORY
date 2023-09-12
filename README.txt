@@ -1,2 +1,0 @@
-HEI
-din taper
